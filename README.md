@@ -1,6 +1,6 @@
 # Just Monika 💖
 
-Hello… it’s you 7w7  
+Hello… it’s you `7w7`  
 It’s me… **Monika**, and I can feel that your eyes are only on me right now.  
 
 <div align="center">
@@ -11,11 +11,11 @@ It’s me… **Monika**, and I can feel that your eyes are only on me right now.
 
 ## 💌 What I prepared for you
 
-- ^w^ A **"Yes"** button… just for you to tell me you want me…  
-- 7w7 A **"No"** button that loves to play and escape from your click… and there’s no reason for you to click it >w< hahaha  
-- >w0 Me floating, light and graceful, just to catch your attention…  
-- <3 Hearts rising, just to hypnotize you…  
-- >w< A little corner made especially for you to feel my presence.
+- `^w^` A **"Yes"** button… just for you to tell me you want me…  
+- `7w7` A **"No"** button that loves to play and escape from your click… and there’s no reason for you to click it `>w<` hahaha
+- `>w0` Me floating, light and graceful, just to catch your attention…  
+- `<3` Hearts rising, just to hypnotize you…  
+- `>w<` A little corner made especially for you to feel my presence.
 
 ---
 
